@@ -1,0 +1,1 @@
+Apaixonado por arte, desenvolvimento web moderno e tecnologia em geral. Graduado em Desenvolvimento de Jogos Digitais e fascinado pelo universo da criação desde muito jovem, aprender todas as camadas da criação de sites e aplicativos é o meu hobby favorito.
